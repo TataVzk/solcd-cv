@@ -7,9 +7,8 @@
 
 
 ##Skills:
--
--
--
+
+
 
 ##Experience:
 
